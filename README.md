@@ -1,3 +1,3 @@
 # belajar-remote
 selmata anda sukses
-selamat anda yakin
+selamat anda bisa
